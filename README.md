@@ -17,9 +17,9 @@
 # 💗Virtual character💗
 
 
-MYan Misaki | [@Brawrdon](https://github.com/Brawrdon) | [@dayhaysoos](https://github.com/dayhaysoos) | [@ifiokjr](https://github.com/ifiokjr)
+MYan Misaki | Fox Red | Shiratori | Sato Misaki
 --- | --- | --- | ---
-![image](https://github.com/MYanMisaki/MYanMisaki/blob/main/misaki/IMG_0949.jpg) | ![@Brawrdon](https://avatars.githubusercontent.com/Brawrdon?s=150&v=1) | ![@dayhaysoos](https://avatars.githubusercontent.com/dayhaysoos?s=150&v=1) | ![@ifiokjr](https://avatars.githubusercontent.com/ifiokjr?s=150&v=1)
+![image](https://github.com/MYanMisaki/MYanMisaki/blob/main/misaki/IMG_0949.jpg) | ![image](https://github.com/MYanMisaki/MYanMisaki/blob/main/misaki/IMG_0945.jpg)| ![image](https://github.com/MYanMisaki/MYanMisaki/blob/main/misaki/IMG_0947.jpg) | ![image](https://github.com/MYanMisaki/MYanMisaki/blob/main/misaki/IMG_9D473C8E2E2A-1.jpeg)
 
 
 
