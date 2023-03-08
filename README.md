@@ -15,7 +15,9 @@
 
 
 # 💗Virtual character💗
+这是我的虚拟形象，欢迎在我的bilibili找我玩
 
+@梦魇魇魇魇嗝
 
 MYan Misaki | Fox Red | Shiratori | Sato Misaki
 --- | --- | --- | ---
